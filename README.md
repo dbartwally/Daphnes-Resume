@@ -16,7 +16,7 @@ WORK EXPERIENCE:
 	BigLots! - 3/2003-6/2003 – My first job in Southern California! I was Assistant Manager. I closed the store, helped with inventory, cashiered, and did customer service. $14/hour
 
 
-		B.A. – Mass Communications
+	B.A. – Mass Communications
 	California State University, Hayward 
 
 	
